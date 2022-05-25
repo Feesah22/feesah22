@@ -38,9 +38,9 @@
 
 
  
- My name is Nafeesah and i am the Softwrae Engineer you was looking for, 
+ My name is Nafeesah and I am the Software Engineer you are looking for, 
 
-Based out of Philadelphia. I am motivated by the intriging function of technology , I have a extensive background in Accountant, and Business while also possessing the passion for Technology. I love critical thinking, troubleshooting and design. I enjoy playing around with website to make it the best possible experience for the user.
+Based out of Philadelphia. I am motivated by the intriguing function of technology , I have an extensive Accountant background , and Business while also possessing the passion for Technology. I love critical thinking, troubleshooting and design. I enjoy playing around with website to make it the best possible experience for the user.
 
 I am a fur mom to two fun , smart dogs whom i absolutely adore.  I stand with my my sisters and brothers in the military uniform.  #BLACKGIRLMAGIC 
                                
